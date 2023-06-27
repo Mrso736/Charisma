@@ -5,13 +5,17 @@ ___
 “It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own.” - Marcus Aurelius
 ___
 
+
 &nbsp;
+
 
 # 1: Confidence
 
 Knowing your internal world starts with one key insight upon which all charisma is built: your mind can’t tell fact from fiction, imagining oneself performing an activity activates parts of the brain that are used in actually performing the activity.
 
+
 &nbsp;
+
 
 ___Visualization:___  
 This visualization is a great tool to increase the amount of power you want to convey.
@@ -36,17 +40,29 @@ You can also add real sensory input to your visualizations. For example, play mu
 
 Add movement to your visualizations. Because physiology affects psychology, creating certain movements or postures can bring up specific emotions in your mind.
 
+
 &nbsp;
+
 
 ___Reverse Visualization:___  
 Emotions and body language are so closely connected that by adopting a particular posture or facial expression, you can actually create the corresponding feelings in your mind. Just as with visualization, where the right image will create corresponding emotions and body language, displaying confident body language will actually make you feel more confident; these feelings will in turn affect your body language, which will adapt to display even more confident signals, creating a positive feedback loop that continually reinforces your confidence.
 
+<dl>  
+  <dd>
+    For confidence and assertiveness, try adopting a military general's posture: stand wide, puff up your chest, broaden your shoulders, 
+    stand straight and confidently put your arms behind your back. Feel the effect of this posture internally.
+  </dd>
 
-For confidence and assertiveness, try adopting a military general's posture: stand wide, puff up your         chest, broaden your shoulders, stand straight and confidently put your arms behind your back. Feel the        effect of this posture internally.
+  <dd>
+    For a boost in both energy and warmth, stand up, stretch your hands as high up as possible, inhale as much as you can.
+    Imagine your rib cage expanding, doubling in size. Make the biggest smile you can and look upward, hold for a second, and then relax everything.
+  </dd>
+</dl>
 
-For a boost in both energy and warmth, stand up, stretch your hands as high up as possible, inhale as much as you can. Imagine your rib cage expanding, doubling in size. Make the biggest smile you can and look upward, hold for a second, and then relax everything.
+
 
 &nbsp;
+
 
 # 2: Warmth
 
