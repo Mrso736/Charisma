@@ -68,7 +68,9 @@ Emotions and body language are so closely connected that by adopting a particula
 
 People give great credence to the intentions they perceive you to have. So if, for instance, you can get yourself into a mental state of goodwill, this would show in your facial expressions and body language and register with people on a deep emotional level. People perceiving this would want to like you, want to see your behaviors and actions in the most positive way. Think of goodwill as your charisma safety net: as long as you can get into a state of goodwill, you will have the absolute best chances of getting your charisma right.
 
+
 &nbsp;
+
 
 ___Gratitude:___  
 Appearing desperate can harm one's chances in various situations, from job interviews to dates. Gratitude is a great antidote to all of these negative emotions because it comes from thinking of things you already have, from material items to meaningful relationships. Even in challenging circumstances, reflecting on the things you are grateful for can shift your body language and demeanor to a more positive state, improve your mental performance, and boost your sense of security, confidence and warmth.
@@ -77,7 +79,9 @@ One way to invoke a sense of gratitude is to focus on little things that are phy
 
 Another good gratitude-enhancing tool is to view your life through a third-person lens, writing a narrative about yourself cast in a positive light.
 
+
 &nbsp;
+
 
 ___Goodwill and Compassion:___  
 Goodwill improves how you feel as it floods your system with oxytocin and serotonin. It lessens our need to make the interaction succeed. When our only aim is to broadcast goodwill, it takes the pressure off. We’re no longer striving, struggling, pushing for things to go in a certain direction. And since we’re less concerned about how the interaction goes, we can both feel and project more charismatic confidence.
@@ -86,7 +90,9 @@ To cultivate goodwill towards someone, try to identify at least three things to 
 
 In any interaction, imagine the person you’re speaking to, and all those around you, as having invisible angel wings. If even for a split second you can see someone as a fundamentally good being, this will soften and warm your emotional reaction toward them, changing your entire body language. Focusing on others' well-being is a crucial element of charisma, as it demonstrates that you genuinely care about them.
 
+
 &nbsp;
+
 
 ___Self-Compassion:___  
 Self-compassion is how much warmth we can have for ourselves, especially when we’re going through a difficult experience. Its what helps us forgive ourselves when we’ve fallen short; it’s what prevents internal criticism from taking over and playing across our face
@@ -100,7 +106,9 @@ Individuals who score high on self-compassion scales demonstrate greater emotion
 1. See yourself through their eyes with warmth, kindness, and compassion. 
 1. Feel them giving you complete forgiveness for everything your inner critic says is wrong. You are completely and absolutely forgiven. You have a clean slate. Feel them giving you wholehearted acceptance. You are accepted as you are, right now, at this stage of growth, imperfections and all.
 
+
 &nbsp;
+
 
 # 3: Overcoming Anxiety
 
@@ -108,7 +116,9 @@ Any internal discomfort, either physical or mental, can have a negative impact o
 
 Another way to skillfully handle any difficult experience is the three-step process: destigmatize discomfort, neutralize negativity, and rewrite reality.
 
+
 &nbsp;
+
 
 ___1. Destigmatize Discomfort:___  
 To destigmatize, remind yourself that this feeling is a natural part of the human experience and that it simply is a legacy of our survival instincts. It helps to think of others who have experienced similar feelings, particularly those who you admire and relate to.
@@ -117,7 +127,9 @@ Recognize that you're not alone. With almost 8 billion people on this planet, I 
 
 Shame can be powerful as it affects our sense of acceptance as humans. Our brains still interpret social needs as a survival necessity because, for our ancestors, rejection by the tribe meant death.
 
+
 &nbsp;
+
 
 ___2. Neutralize Negativity:___  
 One of the main reasons we’re so affected by our negative thoughts is that we think our mind has an accurate grasp on reality, and that its conclusions are valid. Unfortunately, this is not always the case. In fact, our minds are prone to serious distortions, and this is particularly true when it comes to negative thinking. because the elements that our danger-focused brain deems important are usually the most negative ones. This tendency is called the negativity bias.
@@ -125,16 +137,14 @@ One of the main reasons we’re so affected by our negative thoughts is that we 
 Trying to suppress a self-critical thought only makes it more central to your thinking, it’s a far better strategy to simply aim to neutralize it:
 
 - Don’t assume your thoughts are accurate. Assume you’re missing a lot of elements, many of which could be positive.
-
 - Assign a label to your negative experience: self-criticism, anger, anxiety, etc.
-
 - Depersonalize the experience. Rather than saying “I’m feeling ashamed,” try to imagine that you’re a scientist observing a phenomenon: “How interesting, there are self-critical thoughts arising.”
-
 - Imagine yourself from a third person perspective, zoom out into the immensely big  universe, and slowly zoom back in. See your little self, electrical impulses whizzing across your brain. One little being experiencing something at this moment in time.
-
 -  your mental chatter as coming from a radio; see if you can turn down the volume, or even just put the radio to the side and let it chatter away.
 
+
 &nbsp;
+
 
 ___3. Rewrite Reality:___  
 In most situations, we don’t know for certain what motivates a person’s actions, so we might as well choose the explanation that is most helpful to us and create a version of events that puts us in the right mental state for charisma. 
@@ -143,7 +153,9 @@ One charismatic entrepreneur said: “I decide to interpret everything favorably
 
 When faced with a challenging situation that might impair your charisma, instead of ignoring or suppressing your internal struggles, ask yourself what mental state would be most useful in this situation? And rewrite reality to put you there. It's knowingly administering the placebo effect on yourself.
 
+
 &nbsp;
+
 
 ___Other ways:___  
 Focusing on the small physical sensations of discomfort serves a dual purpose: it gives your mind something concrete to focus on other than its growing conviction that this situation is unbearable. It also has the advantage of bringing you instantly into full presence. In fact, this technique, called delving into sensations, can help you access charismatic presence even during highly uncomfortable situations.
@@ -152,7 +164,9 @@ A fast way to feel better when you’re feeling anxious is to flood your system 
 
 choose figures who represent complete self-confidence, or warmth and caring, or calm and serenity. Or you might even find some figures who embody all the elements at once. Visualize yourself going to these figures for a “pep talk” anytime you feel you need one. Thanks to the brain’s wonderful placebo response
 
+
 &nbsp;
+
 
 # 4: Conversational Mindset
 
@@ -160,12 +174,16 @@ There is one all-important law of human behavior. If we obey that law, we greatl
 
 The truth is that most people you meet feel superior to you in some way, and a sure way to their hearts is to let them realize in some subtle way that you recognize their importance, and recognize it sincerely.
 
+
 &nbsp;
+
 
 ___Learn from them:___   
 Remember what Emerson said: “Every man I meet is my superior in some way. In that, I learn of him.” Every single person has a story to tell, mistakes they’ve made, successes they’ve had. listen to them and learn from them.
 
+
 &nbsp;
+
 
 ___Have a sense of belonging:___  
 Embrace the present moment and have a sense of belonging wherever you find yourself.  Adept to the mood and setting and show that that is where you belong at this moment in time.
