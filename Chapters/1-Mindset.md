@@ -178,13 +178,6 @@ The truth is that most people you meet feel superior to you in some way, and a s
 &nbsp;
 
 
-___Learn from them:___   
-Remember what Emerson said: “Every man I meet is my superior in some way. In that, I learn of him.” Every single person has a story to tell, mistakes they’ve made, successes they’ve had. listen to them and learn from them.
-
-
-&nbsp;
-
-
 ___Have a sense of belonging:___  
 Embrace the present moment and have a sense of belonging wherever you find yourself.  Adept to the mood and setting and show that that is where you belong at this moment in time.
 
