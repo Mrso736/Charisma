@@ -1,6 +1,6 @@
 ___
 
-“If you focus on the things you can’t control, you’ll soon lose control of the things you can control” - John Wooden
+_“If you focus on the things you can’t control, you’ll soon lose control of the things you can control” - John Wooden_
 ___
 
 &nbsp;
