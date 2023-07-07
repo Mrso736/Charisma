@@ -170,13 +170,6 @@ choose figures who represent complete self-confidence, or warmth and caring, or 
 
 # 4: Conversational Mindset
 
-There is one all-important law of human behavior. If we obey that law, we greatly reduce our chances of encountering trouble, and will bring us countless friends and constant happiness. But the very instant we break the law, we will find ourselves in endless trouble. The law is this: Always make the other person feel important.
-
-The truth is that most people you meet feel superior to you in some way, and a sure way to their hearts is to let them realize in some subtle way that you recognize their importance, and recognize it sincerely.
-
-
-&nbsp;
-
 
 ___Have a sense of belonging:___  
 Embrace the present moment and have a sense of belonging wherever you find yourself.  Adept to the mood and setting and show that that is where you belong at this moment in time.
