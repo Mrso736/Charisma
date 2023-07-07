@@ -90,9 +90,15 @@ To better connect with people, adjust your choice of words and expressions to be
 ___Bounce-back technique:___  
 If they start asking about you and you want to refocus the conversation on them, use the bounce back technique. Answer the question with a fact, add a personal note, and redirect the question to them:
 
-Them: “So where are you moving to?”
+<dl>
+ <dd>
+  Them: “So where are you moving to?”
+ </dd>
 
-You: “To France [fact]. I really love the scenery there [personal note]. What do you think about the scenery in France [redirect]?”
+ <dd>
+  You: “To France [fact]. I really love the scenery there [personal note]. What do you think about the scenery in France [redirect]?”
+ </dd>
+</dl>
 
 
 &nbsp;
