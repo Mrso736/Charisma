@@ -119,7 +119,7 @@ Few things impair charisma more than bad eye contact and few things gain you cha
 
 
 ___Smiling:___  
-Your smile is a powerful tool that can brighten the lives of those around you. Not only does it convey goodwill, a smile makes you sound and appear warmer.
+Your smile is a powerful tool that can brighten the lives of those around you. Not only does it convey goodwill, a smile makes you sound and appear warmer. Actions speak louder than words, and a smile says: “I like you. You make me happy. I am glad to see you”
 
 Regular smiling is important to have as a part of your body-language routine, even when you don't feel like it, because smiling directly influences other people's attitudes and how they respond to you.
 
